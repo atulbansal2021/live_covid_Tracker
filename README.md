@@ -1,4 +1,4 @@
-# 👋 Hello World! I am atul bansal 
+# 👋 Hello World! I am Atul Bansal 
 
 
 <br> <br>
